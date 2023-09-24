@@ -1,0 +1,2 @@
+- https://cosmgyral.carrd.co/
+- she/her
